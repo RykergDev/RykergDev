@@ -1,0 +1,6 @@
+- I am Rykerg, real name is Ryker.
+- I am the offical developer of Anxiety Maths.
+- I currently only program in the Scratch programming language.
+- I do not usually collaborate with people, I work alone.
+- You can search my youtube channel with the search term "Rykerg" and find a discord link from there. If you want to contact me that is.
+- My pronouns are he/him but I likely don't care if you refer to me as anything else.
